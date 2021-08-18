@@ -1,2 +1,2 @@
-I'm Yakisoba, and I do C# and .NET projects for fun.
-I also like GA: Geijutsuka Art Design Class, Kill me Baby, Persona 3 and Binbo- I mean Windows. Specially Windows XP.
+Another coder in GitHub. 'nuff said.
+I also like Kisaragi Yamaguchi and PaRappa The Rapper.
